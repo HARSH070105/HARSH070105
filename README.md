@@ -5,6 +5,4 @@
 - 📫 How to reach me mail me at my mailing address
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i am super curious
-HARSH070105/HARSH070105 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+![me](https://github.com/HARSH070105/HARSH070105/blob/main/BANNER.gif)
