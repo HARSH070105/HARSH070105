@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HARSH070105
-- 👀 I’m interested in Astronomy, Aerospace and other related stuff
+- 👀 I’m interested in Electronics, Aerospace and other related stuff
 - 🌱 I’m currently learning everything i can
 - 💞️ I’m looking to collaborate on whatever you want
 - 📫 How to reach me mail me at my mailing address
